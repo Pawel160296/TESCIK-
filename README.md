@@ -1,0 +1,2 @@
+# TESCIK-
+TRENING 
